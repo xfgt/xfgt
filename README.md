@@ -12,7 +12,7 @@ If you like what you see, I'd love to see some of your feedback! I'm always up f
 
 I appreciate and support the free software movement.
 
-Enjoy your short stay here! :)
+Enjoy your short stay and this little cosy house in the middle of Sweden! :) 🇸🇪
 
 <img width="1920" height="1200" alt="image" src="https://github.com/user-attachments/assets/e0035d67-5198-4fe3-9ca0-35a43f47ec4f" />
 
